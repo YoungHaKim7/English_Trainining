@@ -15,3 +15,9 @@
 
 # 필수 구동사 10개 씹어먹기. 이건 진짜 진심으로 꼭 알아야 해요. | 제니리 영어 Jenny Lee
 - https://youtu.be/Q262qt-Mn34
+
+
+<hr>
+
+# 원어민이 매일 쓰는 구동사 30개 첫 번째 영상. | 달변가영쌤
+- https://youtu.be/Q3cN-ufLtvs
