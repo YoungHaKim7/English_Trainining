@@ -21,3 +21,9 @@
 
 # 원어민이 매일 쓰는 구동사 30개 첫 번째 영상. | 달변가영쌤
 - https://youtu.be/Q3cN-ufLtvs
+
+
+# 유료 책eBook)
+
+- eBook) 나는 더 영어답게 말하고 싶다 구동사 편 [ EPUB ] 
+  - https://economiceco.tistory.com/m/16810
