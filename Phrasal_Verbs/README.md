@@ -1,7 +1,8 @@
 # 회화가 잘 들리는 구동사 500개 [ phrasal verbs ] | Buttonup English
 
-- [1] 회화가 잘 들리는 구동사 500개 [ phrasal verbs ] | Buttonup English
-  - https://youtu.be/MNJHbd8aEt0
+- 5hr짜리 https://youtu.be/iat7JPvqC4U?si=i0J6_Iwxu5Nsg-pU
+  - [1] 회화가 잘 들리는 구동사 500개 [ phrasal verbs ] | Buttonup English
+    - https://youtu.be/MNJHbd8aEt0
   - 2] 회화가 잘 들리는 구동사 500개 [ Phrasal verbs ]
     - https://youtu.be/lF-1j1OG8kc
   - [3] 회화가 잘 들리는 구동사 500개 [ phrasal verbs]
