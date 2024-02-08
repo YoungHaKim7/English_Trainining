@@ -23,6 +23,11 @@
 # 원어민이 매일 쓰는 구동사 30개 첫 번째 영상. | 달변가영쌤
 - https://youtu.be/Q3cN-ufLtvs
 
+# 5hr 구동사 트레이닝
+
+- https://youtu.be/Vlothq_xDSk?si=wmIwNgYWxJZx1Z3W
+
+<hr>
 
 # 유료 책eBook)
 
