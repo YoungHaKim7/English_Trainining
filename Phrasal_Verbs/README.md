@@ -23,6 +23,13 @@
 # 원어민이 매일 쓰는 구동사 30개 첫 번째 영상. | 달변가영쌤
 - https://youtu.be/Q3cN-ufLtvs
 
+<hr>
+
+# 구동사 어원설명까지 이해하면서 외우자(2hr)
+- https://youtu.be/bs8e0_jJxWM?si=ogn5gu7lpMOlPohe
+
+<hr>
+
 # 5hr 구동사 트레이닝
 
 - https://youtu.be/Vlothq_xDSk?si=wmIwNgYWxJZx1Z3W
