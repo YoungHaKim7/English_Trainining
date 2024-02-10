@@ -18,3 +18,18 @@ https://youtu.be/YFFcPJAZeNQ?si=N3Es213qLRqzotMf
 
 # 뒹굴신 영어 루틴 1-325
 - https://youtu.be/_s0zuSmtF7o?si=WTMhpgeqAckV7E7G
+
+
+<hr>
+
+# 발음
+
+# 한국인의 90%가 어색해하는 영어 발음
+
+- 한국인의 90%가 어색해하는 영어 발음 20개 | 함께 연습해요:) | 하이빅쌤
+
+- https://youtu.be/0mzrmvjWKGc?si=-Mr4r3G31HJ0BS-V
+
+
+
+<hr>
