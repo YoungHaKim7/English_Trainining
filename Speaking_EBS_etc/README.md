@@ -28,8 +28,10 @@ https://youtu.be/YFFcPJAZeNQ?si=N3Es213qLRqzotMf
 
 - 한국인의 90%가 어색해하는 영어 발음 20개 | 함께 연습해요:) | 하이빅쌤
 
-- https://youtu.be/0mzrmvjWKGc?si=-Mr4r3G31HJ0BS-V
+  - https://youtu.be/0mzrmvjWKGc?si=-Mr4r3G31HJ0BS-V
 
 
+- 영어 발음 교정 Day1 - 문장으로 익히며 연습
+  - https://youtu.be/3shTQ7heGpA?si=GXScadrQDytrXZbY
 
 <hr>
