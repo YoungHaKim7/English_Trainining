@@ -1,3 +1,8 @@
+# 미드 쉐도잉 하지말고, 이거 하세요 (중급자) (ft. 아리랑tv뉴스) | 새벽달
+- https://youtu.be/MXAXsmlNoSY?si=66ZBlHIotAriplst
+
+<hr>
+
 # [영어쉐도잉300문장] would, could, should 완벽 정복 훈련 (미드에서 엄선한 리얼 네이티브 300문장) | 헤일리 쌤
 
 - https://youtu.be/o3ie72t9Ftw?si=N-uATl-QNq3FOT1T
